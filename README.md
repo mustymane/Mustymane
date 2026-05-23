@@ -6,3 +6,5 @@
 </div>
 <p align="center">
 ' '[It's the cold that hurts... The big mean doctor knows that...It's okay. You're okay. It's all okay...]' '
+  <p align="center">
+<img width="150" height="100" alt="image" src="https://github.com/user-attachments/assets/95fc4a69-1f38-42e0-afcc-c80ef1409b72" />
