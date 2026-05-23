@@ -8,4 +8,5 @@
   <p align="center">
 <img width="150" height="100" alt="image" src="https://github.com/user-attachments/assets/95fc4a69-1f38-42e0-afcc-c80ef1409b72" />
 <p><p align="center">
-  $\color{rgb(255,0,0)}{\textsf{hiya there!! I'm Doey!! autistic and schizo so be patient wit me:P}}$
+  $\color{rgb(255,0,0)}{\textsf{hiya there!! I'm Doey!! autistic and schizo so be patient wit me:P}}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b12d0a73-a405-45cc-a822-439a3ffe0733" />
+
