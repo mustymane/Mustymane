@@ -3,7 +3,9 @@
 <p></p>
 <p align="center">
 <img width="300" height="300" alt="Untitled1_20260523225227" src="https://github.com/user-attachments/assets/81252dc6-d64e-4acd-b8f4-391245dfa96f" />
-
+to be honest? i _reaally_ want an online parent hehe..
+  <div></div>
+  
 # ────୨ৎ────
 
   <p align="right">
