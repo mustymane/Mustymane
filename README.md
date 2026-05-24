@@ -25,6 +25,6 @@ $\color{rgb(255,255,51)}{\textsf{ "It's the cold that hurts... The big mean doct
   
   <p align="right"
     
-**my main personalities! ꉂ(˵˃ ᗜ ˂˵)**
+# ᯓ★ˎˊ˗           my main personalities! ꉂ(˵˃ ᗜ ˂˵)
 
-####(keep in mind.. im not a system, atleast not that i know of, my mood just changes really fast. '-_-
+#### (keep in mind.. im not a system, atleast not that i know of, my mood just changes really fast. '-_-)
