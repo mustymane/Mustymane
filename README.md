@@ -25,6 +25,10 @@ $\color{rgb(255,255,51)}{\textsf{ "It's the cold that hurts... The big mean doct
   
   <p align="right"
     
-# ᯓ★ˎˊ˗           my main personalities! ꉂ(˵˃ ᗜ ˂˵)
+# ᯓ★ˎˊ˗           my main personalities! ꉂ(˵˃ ᗜ ˂˵) 
+<div>
+</div>
+<img width="200" height="30" alt="image" src="https://github.com/user-attachments/assets/3708359a-d941-42a4-a6d7-bf347ca6337c" />
+
 
 #### (keep in mind.. im not a system, atleast not that i know of, my mood just changes really fast. '-_-)
