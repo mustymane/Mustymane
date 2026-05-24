@@ -2,6 +2,7 @@
 <p></p>
 <p align="center">
 <img width="256" height="256" alt="image" src="https://github.com/user-attachments/assets/c0d090b2-2db0-47f6-997a-ddc94f1b1f36" />
+$\color{rgb(255,255,51)}{\textsf{ "It's the cold that hurts... The big mean doctor knows that...It's okay. You're okay. It's all okay..."}}$
 <div>
 </div>
 <p align="center"> 
