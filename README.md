@@ -15,6 +15,8 @@ $\color{rgb(255,255,51)}{\textsf{ "It's the cold that hurts... The big mean doct
   <p align="center">
 <img width="1000" height="25" alt="image" src="https://github.com/user-attachments/assets/73f8649d-c326-42e1-8e38-89790d8d876c" />
 
-  ## Hiya!! i'm Doey! i try to be the best friend i can be to everybody i meet.
-<p align="left">
-# my main personalities! ꉂ(˵˃ ᗜ ˂˵)
+  ## Hiya!! i'm Doey! i try to be the best friend i can be to everybody i meet. <img width="30" height="35" alt="image" src="https://github.com/user-attachments/assets/930edc1e-7ad3-4398-9f22-6968ac190cc3" />
+
+  <div></div>
+  
+  # my main personalities! ꉂ(˵˃ ᗜ ˂˵)
