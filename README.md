@@ -4,6 +4,8 @@
 <p align="center">
 <img width="300" height="300" alt="Untitled1_20260523225227" src="https://github.com/user-attachments/assets/81252dc6-d64e-4acd-b8f4-391245dfa96f" />
 
+# ────୨ৎ────
+
   <p align="right">
     <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/d41dc68d-67d5-44ca-ad79-7948fbd753bf" />
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/df306c9b-2422-469d-9778-4a7073dda8ed" />
@@ -19,4 +21,6 @@ $\color{rgb(255,255,51)}{\textsf{ "It's the cold that hurts... The big mean doct
 
   <div></div>
   
-  # my main personalities! ꉂ(˵˃ ᗜ ˂˵)
+  <p align="right"
+    
+**my main personalities! ꉂ(˵˃ ᗜ ˂˵)**
