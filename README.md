@@ -6,7 +6,7 @@
   <p align="right">
     <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/d41dc68d-67d5-44ca-ad79-7948fbd753bf" />
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/df306c9b-2422-469d-9778-4a7073dda8ed" />
-
+⋆˚࿔
 $\color{rgb(255,255,51)}{\textsf{ "It's the cold that hurts... The big mean doctor knows that...It's okay. You're okay. It's all okay..."}}$
 <div>
 </div>
