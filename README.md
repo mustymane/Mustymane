@@ -32,3 +32,7 @@ $\color{rgb(255,255,51)}{\textsf{ "It's the cold that hurts... The big mean doct
 
 
 #### (keep in mind.. im not a system, atleast not that i know of, my mood just changes really fast. '-_-)
+
+## Jack 𐔌՞ ܸ.ˬ.ܸ՞𐦯
+<img width="300" height="300" alt="Untitled1_20260523225652" src="https://github.com/user-attachments/assets/a5225157-f83f-4074-b53c-bd6680eab707" /> 
+
