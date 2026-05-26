@@ -33,6 +33,8 @@ $\color{rgb(255,255,51)}{\textsf{ "It's the cold that hurts... The big mean doct
 
 #### (keep in mind.. im not a system, atleast not that i know of, my mood just changes really fast. '-_-)
 
-## Jack 𐔌՞ ܸ.ˬ.ܸ՞𐦯
+## Jack, matthew, and kevin 𐔌՞ ܸ.ˬ.ܸ՞𐦯
 <img width="300" height="300" alt="Untitled1_20260523225652" src="https://github.com/user-attachments/assets/a5225157-f83f-4074-b53c-bd6680eab707" /> 
 
+<img width="300" height="300" alt="Untitled1_20260523225712" src="https://github.com/user-attachments/assets/2e00b934-04ea-46ed-8590-bcfc34058a74" />
+<img width="300" height="300" alt="Untitled1_20260523225735" src="https://github.com/user-attachments/assets/d63528a7-e6c0-40be-ac1a-01e6b67c5e44" />
