@@ -44,7 +44,8 @@ _______________________
    ### *some people may also know me as Oatie.*     ˙𐃷˙          
 
 
-   <img width="550" height="90" alt="image" src="https://github.com/user-attachments/assets/45119fa2-797a-4169-826c-1690b534e159" />
+   <img width="550" height="90" alt="image" src="https://github.com/user-attachments/assets/45119fa2-797a-4169-826c-1690b534e159" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/136dd076-7c13-4573-8a50-f5af4c4dd97f" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/c985338a-416f-4ae7-bd81-ba6ca3ffd290" />
+
 
 
 
