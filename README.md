@@ -1,1 +1,9 @@
-"You can run from your demons until you are exhausted, One day? you will have to stop and find out what they wanted.."
+<p align="center">
+<img width="900" height="80" alt="image" src="https://github.com/user-attachments/assets/f486017d-4910-4b8f-b9e0-90784ac5c4e5" />
+
+
+
+<p align="center">
+  <img width="150" height="340" alt="image" src="https://github.com/user-attachments/assets/0169833d-355d-4479-b0d4-6d34a314a5a2" />
+
+</p>
