@@ -19,7 +19,7 @@
 <p align="center">
 
   
-   ## **[' ' I can't run away. I can't go back down. I can never go back.' ']**
+   ## **[' ' `The self proclaimed "Rival of the Champion Red" by himself. He wants to be the best and make everyone proud.`' ']**
 
 
 <p align="center">
