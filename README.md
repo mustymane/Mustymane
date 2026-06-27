@@ -47,11 +47,18 @@ _______________________
    <img width="550" height="90" alt="image" src="https://github.com/user-attachments/assets/45119fa2-797a-4169-826c-1690b534e159" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/136dd076-7c13-4573-8a50-f5af4c4dd97f" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/c985338a-416f-4ae7-bd81-ba6ca3ffd290" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/0affe1f3-899c-4395-87d1-015cc35a4cb9" />
 
 
-#### I LOVEEE gorillaz and weird al and weird al and weird al and weird al and
+#### ||I LOVEEE gorillaz and weird al and weird al,, saw weird al 6/5/26!!
 
-
+---
 <p align="right">
-<img width="170" height="350" alt="image" src="https://github.com/user-attachments/assets/616aaec4-85c9-4ea6-a5bf-dc09a5e51152" />
+
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/29dffbca-bf05-45d2-b807-696f0521dece" />
+my favorite pokemon are cyndaquil, unown and snom!! 
+      
+my all time favorite is hypno though!! i might genuinely be the #1 hypno fan. 𐙚
+<img width="170" height="350" alt="image" src="https://github.com/user-attachments/assets/616aaec4-85c9-4ea6-a5bf-dc09a5e51152" /> ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7fc1d73b-235f-4f43-8c9a-29afaa3d6476" />
+
+
 
 
 
