@@ -39,6 +39,9 @@ _______________________
    ### *yellow! I'm ethan or stuart,*
    
    ### *some people may also know me as Oatie.*     ˙𐃷˙   
+
+   <img width="550" height="90" alt="image" src="https://github.com/user-attachments/assets/45119fa2-797a-4169-826c-1690b534e159" />
+
 <p align="right">
 <img width="170" height="350" alt="image" src="https://github.com/user-attachments/assets/616aaec4-85c9-4ea6-a5bf-dc09a5e51152" />
 
