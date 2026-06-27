@@ -51,13 +51,22 @@ _______________________
 
 ---
 <p align="right">
-
-<img width="170" height="350" alt="image" src="https://github.com/user-attachments/assets/616aaec4-85c9-4ea6-a5bf-dc09a5e51152" />
+me ---> <img width="100" height="190" alt="image" src="https://github.com/user-attachments/assets/616aaec4-85c9-4ea6-a5bf-dc09a5e51152" />
 
 
 </p> 
 
-# my fav pokemon!!
+# my fav pokemon!! ˙ᵕ˙
+
+<p align="center">
+ <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/9abfd672-8be8-4c9d-868c-f000b9204fc4" /> 
+ <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/736c3e0f-2e7a-4a43-8031-8db2e3d9f9be" />
+<img width="290" height="330" alt="image" src="https://github.com/user-attachments/assets/a0cd4fdd-4658-43a6-8d80-b9de7f196b1e" />
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/a2ace851-3f27-4eba-bd41-823b6c934160" />
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/5817e8bf-ab78-4963-8650-e9f887429773" />
+
+
+
 
 
 
