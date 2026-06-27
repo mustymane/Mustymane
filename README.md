@@ -58,7 +58,7 @@ me ---> <img width="100" height="190" alt="image" src="https://github.com/user-a
 
 ##### recovering from an abusive friendship, sorry if im timid.
 
-
+## (that being said i NEEEEDDD NEW FRIENDS)
 
 
 
