@@ -5,7 +5,9 @@
 [ ' 'family fell apart, they made me feel like i was weak..' ' ]
 
 <p align="center">
-  <img width="150" height="340" alt="image" src="https://github.com/user-attachments/assets/0169833d-355d-4479-b0d4-6d34a314a5a2" />
+<img width="200" height="350" alt="image" src="https://github.com/user-attachments/assets/74959d3a-e2ee-4a81-9733-55750b303d20" />
+
+
 
 </p>
 <p align="center">
