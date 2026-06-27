@@ -31,18 +31,21 @@
 
 _______________________
 
-# ୭ ˚. ᵎᵎˎˊ˗
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ca591ad8-9481-47fb-81b5-4e428895942b" />
+# ୭ ˚. ᵎᵎˎˊ˗ 
+
 
 
 </p> 
 
-   ### *yellow! I'm ethan or stuart,*
+   ### *yellow! I'm ethan or stuart,*           ૮₍ ´ ꒳ `₎ა <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/a6f2ea0e-e065-48be-be96-34ba1e87d4f6" />
+
    
-   ### *some people may also know me as Oatie.*     ˙𐃷˙   
+   ### *some people may also know me as Oatie.*     ˙𐃷˙          
+
 
    <img width="550" height="90" alt="image" src="https://github.com/user-attachments/assets/45119fa2-797a-4169-826c-1690b534e159" />
 
-   <img width="550" height="90" alt="image" src="https://github.com/user-attachments/assets/387d53bd-f273-4d31-bf52-ec4d59f54454" />
 
 
 <p align="right">
