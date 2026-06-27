@@ -10,3 +10,10 @@
 </p>
 <p align="center">
 [ ' 'So i cut them from my life, my feelings buried far beneath.' ' ]
+
+</p>
+<p align="center">
+<img width="190" height="100" alt="image" src="https://github.com/user-attachments/assets/a30ab725-e112-4fb7-b62e-755c98b861e2" />
+
+
+
