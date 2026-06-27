@@ -15,6 +15,9 @@
 
 
 
+
+      
+
 </p>
 <p align="center">
 
@@ -26,7 +29,20 @@
 <img width="190" height="110" alt="image" src="https://github.com/user-attachments/assets/4bc87223-74b6-4633-96cc-3c90b5373a74" />
 <img width="199" height="110" alt="image" src="https://github.com/user-attachments/assets/c25a8040-bbff-411f-8820-899129981ae4" />
 
+_______________________
 
+# ୭ ˚. ᵎᵎˎˊ˗
+
+
+</p> 
+
+   ### *yellow! I'm ethan or stuart,*
+   
+   ### *some people may also know me as Oatie.*     ˙𐃷˙
+
+      
+<p align="right">
+<img width="150" height="350" alt="image" src="https://github.com/user-attachments/assets/616aaec4-85c9-4ea6-a5bf-dc09a5e51152" />
 
 
 
