@@ -61,9 +61,6 @@
 
 </p> 
 
-<p align="right"
-      
-<img width="434" height="288" alt="image" src="https://github.com/user-attachments/assets/ffc340a7-2324-4157-bbe9-e822ed145bf8" /> <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/b6e40452-4472-40a8-b89e-e859c695f168" /> mental abuser btw
 
 </p>
 
