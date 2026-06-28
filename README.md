@@ -38,7 +38,10 @@
 
 </p> 
 
-   # *yellow! I'm ethan or stuart,*           ૮₍ ´ ꒳ `₎ა <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/a6f2ea0e-e065-48be-be96-34ba1e87d4f6" />
+   # *yellow! I'm ethan or stuart,*           ૮₍ ´ ꒳ `₎ა 
+   
+   <p align="center">
+   <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/a6f2ea0e-e065-48be-be96-34ba1e87d4f6" />
 
    <p align="right">
   some people may also know me as Oatie.     ˙𐃷˙          
@@ -48,10 +51,10 @@
 
 
 #### ꩜ I LOVEEE gorillaz, danny gonzalez, and weird al,, saw weird al 6/5/26!!
+<img width="900" height="10" alt="image" src="https://github.com/user-attachments/assets/d929e53e-6ace-4a8e-9dfb-e1cfdd1fe5cb" />
 
----
-<p align="right">
-me ---> <img width="100" height="190" alt="image" src="https://github.com/user-attachments/assets/616aaec4-85c9-4ea6-a5bf-dc09a5e51152" />
+<p align="center">
+   <img width="100" height="190" alt="image" src="https://github.com/user-attachments/assets/616aaec4-85c9-4ea6-a5bf-dc09a5e51152" />
 
 
 </p> 
