@@ -53,8 +53,6 @@
 #### ꩜ I LOVEEE gorillaz, danny gonzalez, and weird al,, saw weird al 6/5/26!!
 <img width="900" height="10" alt="image" src="https://github.com/user-attachments/assets/d929e53e-6ace-4a8e-9dfb-e1cfdd1fe5cb" />
 
-<p align="center">
-   <img width="100" height="190" alt="image" src="https://github.com/user-attachments/assets/616aaec4-85c9-4ea6-a5bf-dc09a5e51152" />
 
 
 </p> 
