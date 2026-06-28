@@ -46,14 +46,15 @@
    <p align="right">
   some people may also know me as Oatie.     ˙𐃷˙          
 
-
+<p align="center"
    <img width="550" height="90" alt="image" src="https://github.com/user-attachments/assets/45119fa2-797a-4169-826c-1690b534e159" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/136dd076-7c13-4573-8a50-f5af4c4dd97f" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/c985338a-416f-4ae7-bd81-ba6ca3ffd290" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/0affe1f3-899c-4395-87d1-015cc35a4cb9" />
 
 
 #### ꩜ I LOVEEE gorillaz, danny gonzalez, and weird al,, saw weird al 6/5/26!!
 
 <img width="900" height="10" alt="image" src="https://github.com/user-attachments/assets/d929e53e-6ace-4a8e-9dfb-e1cfdd1fe5cb" />
-
+<p align="center"
+      
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000)](https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&redirect=true)
 
 </p> 
