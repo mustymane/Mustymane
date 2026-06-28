@@ -57,7 +57,16 @@
       
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000)](https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&redirect=true)
 
+---
+
 </p> 
+
+<p align="right"
+      
+<img width="434" height="288" alt="image" src="https://github.com/user-attachments/assets/ffc340a7-2324-4157-bbe9-e822ed145bf8" /> <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/b6e40452-4472-40a8-b89e-e859c695f168" /> mental abuser btw
+
+</p>
+
 
 <img width="900" height="80" alt="image" src="https://github.com/user-attachments/assets/4eaa3510-f364-4590-96fc-0a4b18f5e448" />
 
