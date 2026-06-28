@@ -51,15 +51,13 @@
 
 
 #### ꩜ I LOVEEE gorillaz, danny gonzalez, and weird al,, saw weird al 6/5/26!!
+
 <img width="900" height="10" alt="image" src="https://github.com/user-attachments/assets/d929e53e-6ace-4a8e-9dfb-e1cfdd1fe5cb" />
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000)](https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&redirect=true)
 
 </p> 
 
 <img width="900" height="80" alt="image" src="https://github.com/user-attachments/assets/4eaa3510-f364-4590-96fc-0a4b18f5e448" />
-
-
-
 
 
