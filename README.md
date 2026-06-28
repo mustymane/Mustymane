@@ -29,7 +29,7 @@
 <img width="190" height="110" alt="image" src="https://github.com/user-attachments/assets/4bc87223-74b6-4633-96cc-3c90b5373a74" />
 <img width="199" height="110" alt="image" src="https://github.com/user-attachments/assets/c25a8040-bbff-411f-8820-899129981ae4" />
 
-_______________________
+<img width="900" height="10" alt="image" src="https://github.com/user-attachments/assets/d929e53e-6ace-4a8e-9dfb-e1cfdd1fe5cb" />
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ca591ad8-9481-47fb-81b5-4e428895942b" />
 # ୭ ˚. ᵎᵎˎˊ˗ 
@@ -38,7 +38,7 @@ _______________________
 
 </p> 
 
-   ### *yellow! I'm ethan or stuart,*           ૮₍ ´ ꒳ `₎ა <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/a6f2ea0e-e065-48be-be96-34ba1e87d4f6" />
+   # *yellow! I'm ethan or stuart,*           ૮₍ ´ ꒳ `₎ა <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/a6f2ea0e-e065-48be-be96-34ba1e87d4f6" />
 
    
    ### *some people may also know me as Oatie.*     ˙𐃷˙          
