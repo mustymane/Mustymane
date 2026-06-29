@@ -57,6 +57,9 @@
   <p align="center">
 pls ask for my discord if you actually want to talk!! i really need new friends
 
+<img width="468" height="357" alt="image" src="https://github.com/user-attachments/assets/3346bcc4-f1c3-4e94-8239-e987ae3ef929" />
+
+
   <p align="center">
 <img width="900" height="10" alt="image" src="https://github.com/user-attachments/assets/d929e53e-6ace-4a8e-9dfb-e1cfdd1fe5cb" />
 <p align="center"
