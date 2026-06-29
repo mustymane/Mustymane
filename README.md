@@ -52,6 +52,8 @@
 
 #### ꩜ I LOVEEE gorillaz, danny gonzalez, and weird al,, saw weird al 6/5/26!!
 
+pls ask for my discord if you actually want to talk!! i really need new friends
+
 <img width="900" height="10" alt="image" src="https://github.com/user-attachments/assets/d929e53e-6ace-4a8e-9dfb-e1cfdd1fe5cb" />
 <p align="center"
       
