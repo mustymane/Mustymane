@@ -57,7 +57,11 @@
   <p align="center">
 pls ask for my discord if you actually want to talk!! i really need new friends
 
+# I FUCKING LOVE THIS GAME
+
 <img width="468" height="357" alt="image" src="https://github.com/user-attachments/assets/3346bcc4-f1c3-4e94-8239-e987ae3ef929" />
+<img width="576" height="570" alt="image" src="https://github.com/user-attachments/assets/878ef3ad-4c80-491d-a422-2c0af989a8c2" />
+
 
 
   <p align="center">
