@@ -38,7 +38,7 @@
 
 </p> 
 
-   # *yellow! I'm ethan or stuart,*           ૮₍ ´ ꒳ `₎ა 
+   # *yellow! I'm gold or stuart,*           ૮₍ ´ ꒳ `₎ა 
    
    <p align="center">
    <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/a6f2ea0e-e065-48be-be96-34ba1e87d4f6" />
