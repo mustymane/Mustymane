@@ -39,6 +39,9 @@
 </p> 
 
    # *yellow! I'm gold or stuart,*           ૮₍ ´ ꒳ `₎ა 
+
+<img width="350" height="400" alt="image" src="https://github.com/user-attachments/assets/58bbc9be-1aa6-445f-9305-119001192879" />
+
    
    <p align="center">
    <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/a6f2ea0e-e065-48be-be96-34ba1e87d4f6" />
@@ -59,6 +62,7 @@ pls ask for my discord if you actually want to talk!! i really need new friends
 
 # I FUCKING LOVE THIS GAME
 
+<p align="center">
 <img width="468" height="357" alt="image" src="https://github.com/user-attachments/assets/3346bcc4-f1c3-4e94-8239-e987ae3ef929" />
 <img width="576" height="570" alt="image" src="https://github.com/user-attachments/assets/878ef3ad-4c80-491d-a422-2c0af989a8c2" />
 
