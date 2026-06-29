@@ -43,7 +43,7 @@
    <p align="center">
    <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/a6f2ea0e-e065-48be-be96-34ba1e87d4f6" />
 
-   <p align="right">
+  <p align="center">
   some people may also know me as Oatie.     ˙𐃷˙   
          fyi i dont talk a lot, please whisper me if you want to start a convo..
 
@@ -51,10 +51,13 @@
    <img width="550" height="90" alt="image" src="https://github.com/user-attachments/assets/45119fa2-797a-4169-826c-1690b534e159" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/136dd076-7c13-4573-8a50-f5af4c4dd97f" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/c985338a-416f-4ae7-bd81-ba6ca3ffd290" /> <img width="52" height="52" alt="image" src="https://github.com/user-attachments/assets/0affe1f3-899c-4395-87d1-015cc35a4cb9" />
 
 
-#### ꩜ I LOVEEE gorillaz, danny gonzalez, and weird al,, saw weird al 6/5/26!!
+  <p align="center">
+ ꩜ I LOVEEE gorillaz, danny gonzalez, and weird al,, saw weird al 6/5/26!!
 
+  <p align="center">
 pls ask for my discord if you actually want to talk!! i really need new friends
 
+  <p align="center">
 <img width="900" height="10" alt="image" src="https://github.com/user-attachments/assets/d929e53e-6ace-4a8e-9dfb-e1cfdd1fe5cb" />
 <p align="center"
       
