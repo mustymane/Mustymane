@@ -67,7 +67,7 @@ pls ask for my discord if you actually want to talk!! i really need new friends
 <img width="576" height="570" alt="image" src="https://github.com/user-attachments/assets/878ef3ad-4c80-491d-a422-2c0af989a8c2" />
 <img width="486" height="813" alt="image" src="https://github.com/user-attachments/assets/b0ce3b46-ee2e-4a9d-92a3-a35ac8d12439" />
 <img width="491" height="514" alt="image" src="https://github.com/user-attachments/assets/611c0a25-ae76-4881-9b19-9a87a7acc288" />
-<img width="690" height="802" alt="image" src="https://github.com/user-attachments/assets/be0d3961-545a-4406-a229-2ffaaf99f474" />
+<img width="400" height="500" alt="image" src="https://github.com/user-attachments/assets/be0d3961-545a-4406-a229-2ffaaf99f474" />
 
 
 
