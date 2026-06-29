@@ -74,7 +74,8 @@ pls ask for my discord if you actually want to talk!! i really need new friends
       
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000)](https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&redirect=true)
 
-<img width="500" height="600" alt="image" src="https://github.com/user-attachments/assets/6cb067c9-af5d-4c48-bfb4-6e4b91633d42" />
+<p align="center">
+ <img width="500" height="600" alt="image" src="https://github.com/user-attachments/assets/6cb067c9-af5d-4c48-bfb4-6e4b91633d42" />
 
 
 ---
