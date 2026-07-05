@@ -13,7 +13,7 @@
 
 
   <p align="center">
-  $${\color{orange}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
+  $${\color{#CB465C}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
  <p align="center"> ⠀ 
   $${\color{#08628B} ' ' I \space \color{gold}AM \space \color{#08628B}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
    
