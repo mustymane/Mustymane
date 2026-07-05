@@ -3,18 +3,19 @@
 # ➜ ' ' LOST SILVER. ' 'ㅤ
 
 <p align="center">
-<img width="2048" height="82" alt="image" src="https://github.com/user-attachments/assets/a048f04c-a3fb-470e-a50a-56bca1b84bc9" />
+<img width="2048" height="82" alt="image" src="https://github.com/user-attachments/assets/defc74f3-f692-4c70-9945-2f77df9cdf7b" />
+
   
-  $${\color{red}. ݁₊ ⊹ . ݁˖ .} ݁$$
+  $${\color{lightblue}. ݁₊ ⊹ . ݁˖ .} ݁$$
 <p align="center">
   <img width="740" height="300" alt="Untitled10_20260705023853" src="https://github.com/user-attachments/assets/757ec6d9-8a5f-425b-9317-11903b57e7f6" />
   <p align="center">
   $${\color{orange}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
  <p align="center"> ⠀ 
-<img width="550" height="50" alt="image" src="https://github.com/user-attachments/assets/31bc7664-d05c-4d1f-af91-708060885d13" />
+<img width="2048" height="140" alt="image" src="https://github.com/user-attachments/assets/5c6f2c57-bded-45e9-b13f-2a74885135f0" />
 
 
-  $${\color{darkred} ' ' I \space \color{gold}AM \space \color{darkred}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
+  $${\color{navy} ' ' I \space \color{gold}AM \space \color{navy}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
       <p align="center">
    <p align="center">
  <p align="center">
