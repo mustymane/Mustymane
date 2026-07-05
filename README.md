@@ -11,8 +11,9 @@
   <p align="center">
   $${\color{orange}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
  <p align="center"> ⠀ 
-<img width="1000" height="42" alt="image" src="https://github.com/user-attachments/assets/c2fb49de-568a-4e5f-8ad2-cfe502d4ae9f" />
-    
+<img width="550" height="50" alt="image" src="https://github.com/user-attachments/assets/31bc7664-d05c-4d1f-af91-708060885d13" />
+
+
   $${\color{darkred} ' ' I \space \color{gold}AM \space \color{darkred}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
       <p align="center">
    <p align="center">
