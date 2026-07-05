@@ -8,7 +8,10 @@
 <p align="center">
   <img width="740" height="300" alt="Untitled10_20260705023853" src="https://github.com/user-attachments/assets/757ec6d9-8a5f-425b-9317-11903b57e7f6" />
   <p align="center">
-  $${\color{yellow} ⌞gold/stuart ノノ fictionkin, autistic ノ adhd  ⌝}$$
+  $${\color{silver}⸝⸝ ⠀ ꩜⠀⠀  ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
+    ⠀ ⠀ ⠀ ⠀ ⠀
+    ⠀ ⠀ ⠀ ⠀ ⠀
+    $${\color{darkred} ' ' I \space \color{gold}AM \space \color{darkred}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
       <p align="center">
    <p align="center">
  <p align="center">
