@@ -10,9 +10,10 @@
   <img width="740" height="300" alt="Untitled10_20260705023853" src="https://github.com/user-attachments/assets/757ec6d9-8a5f-425b-9317-11903b57e7f6" />
   <p align="center">
   $${\color{orange}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
-    ⠀ ⠀ ⠀ ⠀ ⠀
-    ⠀ ⠀ ⠀ ⠀ ⠀
-    $${\color{darkred} ' ' I \space \color{gold}AM \space \color{darkred}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
+ <p align="center"> ⠀ 
+<img width="1000" height="42" alt="image" src="https://github.com/user-attachments/assets/c2fb49de-568a-4e5f-8ad2-cfe502d4ae9f" />
+    
+  $${\color{darkred} ' ' I \space \color{gold}AM \space \color{darkred}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
       <p align="center">
    <p align="center">
  <p align="center">
