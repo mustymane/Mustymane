@@ -11,6 +11,4 @@
 <p align="center">
   ──── ୨୧ ────
   <p align="center">
-  <img width="430" height="40" alt="image" src="https://github.com/user-attachments/assets/5adc8e13-8d0f-4703-a695-6dc9857ecb67" />
-  <p align="center">
   $${\color{yellow} ⌞gold/stuart ノノ fictionkin, autistic ノ adhd  ⌝}$$
