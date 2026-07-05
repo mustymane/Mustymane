@@ -1,2 +1,3 @@
-remaking
+ˏˋ°•*⁀➷
+# ' ' LOST SILVER. ' '
 
