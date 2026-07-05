@@ -7,7 +7,7 @@
   ![typhlosion](https://64.media.tumblr.com/d5a6b0359cda290590e8748bfeb537cd/ace99ee369f4f3e5-29/s2048x3072/7e012ff3b974818378746934e7b36fd6a2716fa0.pnj)
 
   
-  $${\color{lightblue}. ݁₊ ⊹ . ݁˖ .} ݁$$
+  $${\color{red}. ݁₊ ⊹ . ݁˖ .} ݁$$
 <p align="center">
  <img width="637" height="235" alt="image" src="https://github.com/user-attachments/assets/1828add0-a489-49e3-99d6-6cf22e6d47ca" />
 
