@@ -9,7 +9,9 @@
   
   $${\color{lightblue}. ݁₊ ⊹ . ݁˖ .} ݁$$
 <p align="center">
-  <img width="740" height="300" alt="Untitled10_20260705023853" src="https://github.com/user-attachments/assets/757ec6d9-8a5f-425b-9317-11903b57e7f6" />
+ <img width="637" height="235" alt="image" src="https://github.com/user-attachments/assets/1828add0-a489-49e3-99d6-6cf22e6d47ca" />
+
+
   <p align="center">
   $${\color{orange}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
  <p align="center"> ⠀ 
