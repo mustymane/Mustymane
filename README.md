@@ -32,5 +32,6 @@
 ### yellow!! i'm stuart. i also go by gold or ethan though.
 <p align="center">
 
-
+ <p align="right">
+lost silvers #1 kinnie!! doubles iwec
 
