@@ -30,7 +30,9 @@
  ──── ୨୧ ────
 
 ### yellow!! i'm stuart. i also go by gold or ethan though.
+⠀ ⠀ ⠀ ⠀ ⠀
 <p align="center">
+<img width="100" height="66" alt="image" src="https://github.com/user-attachments/assets/c219685d-d4c6-4a01-b1df-4254e99a9594" />
 
  <p align="right">
 lost silvers #1 kinnie!! doubles iwec
