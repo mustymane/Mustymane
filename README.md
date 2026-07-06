@@ -10,7 +10,8 @@
   $${\color{#F78F38}. ݁₊ ⊹ . ݁˖ .}$$
 <p align="center">
  <img width="637" height="235" alt="image" src="https://github.com/user-attachments/assets/1828add0-a489-49e3-99d6-6cf22e6d47ca" />
-
+ <p align="center">
+ <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/eefc0b17-5243-45e0-afb6-34f919889dbc" />
 
   <p align="center">
   $${\color{#CB465C}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
@@ -25,3 +26,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=true">
   </a>
 </p>
+ <p align="center">
+
