@@ -17,10 +17,11 @@
   $${\color{#F78F38}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
  <p align="center"> ⠀ 
   $${\color{#08628B} ' ' I \space \color{gold}AM \space \color{#08628B}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
-   
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage 𖹭](https://coldgold.straw.page/) [atabook 𖹭](https://mustymane.atabook.org)
+    
    ![typhlosion](https://64.media.tumblr.com/1ad0505f646e76afcff97da61b1cc00d/ace99ee369f4f3e5-06/s2048x3072/7d5cc7fa56a435efaf1dee7c5cde1f7a513363da.gifv)
 
-[strawpage 𖹭](https://coldgold.straw.page/)
 
  <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&redirect=true">
@@ -29,12 +30,5 @@
 </p>
  <p align="center">
  ──── ୨୧ ────
-
-### yellow!! i'm stuart. i also go by gold or ethan though.
-⠀ ⠀ ⠀ ⠀ ⠀
-<p align="center">
-<img width="100" height="66" alt="image" src="https://github.com/user-attachments/assets/c219685d-d4c6-4a01-b1df-4254e99a9594" />
-
- <p align="right">
-lost silvers #1 kinnie!! doubles iwec
+⠀ ⠀ ⠀ 
 
