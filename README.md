@@ -38,5 +38,10 @@
 </p>
  <p align="center">
  ──── ୨୧ ────
-⠀ ⠀ ⠀ 
 
+## main kins :3 
+  
+| kin name  | source |
+| ------------- | ------------- |
+| 🪦/💛 gold  | lost silver |
+| ❤️/🐉🪦 steven  | strangled red  |
