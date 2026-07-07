@@ -41,7 +41,7 @@
 
 ## main kins,, doubles iwec 
   
-| kin name  | source | pronouns + age |
+| ( ˶°ㅁ°) !! kin name  | source | pronouns + age |
 | ------------- | ------------- | ------------- |
 | 🪦/💛 gold  | lost silver | heノit 𓂃 11 |
 | ❤️/🐉🪦 steven  | strangled red  | heノthey 𓂃 18
@@ -52,3 +52,6 @@
 | 💛/🐕🤖 N | murder drones | itノhe 𓂃 none
 | 🪞🎤/💙 yourself | hit single real | heノhim 𓂃 19
 | 🚬🪦/💚 garcello | atsuoverノsmoke em out struggle | heノhim 𓂃 25
+| 💙/🎱🎤 2-D | Gorillaz | heノthey 𓂃 48
+| 🧡/🍎🔫 pico | picos school | heノhim 𓂃 13
+| ❤️/🍎 kris | deltarune | theyノthem 𓂃 15
