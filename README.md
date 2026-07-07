@@ -46,3 +46,5 @@
 | 🪦/💛 gold  | lost silver |
 | ❤️/🐉🪦 steven  | strangled red  |
 | ❤️/❄️🪦 red  | snow on mount silver  |
+| 💾/🩶 grey the bootleg trainer  | hypnos lullaby  |
+| 💛/🌀🐾 hypno (IM NOT A PEDOPHILE.) | pokemon  |
