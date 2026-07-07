@@ -15,7 +15,7 @@
  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/eefc0b17-5243-45e0-afb6-34f919889dbc" />
 
   <p align="center">
-    ﹌﹌﹌﹌﹌﹌﹌
+    $${\color{#D70202}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
     
   $${\color{#F78F38}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
  <p align="center"> ⠀ 
