@@ -50,3 +50,5 @@
 | 🐇/💜🎳 jax | the amazing digital circus |
 | 🎩/🩵❤️💛🧡 Doey the doughman | poppy playtime |
 | 💛/🐕🤖 N | murder drones |
+| 🪞🎤/💙 yourself | hit single real |
+| 🚬🪦/💚 garcello | atsuover/smoke em out struggle |
