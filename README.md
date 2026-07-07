@@ -1,4 +1,5 @@
-ˏˋ°•*⁀➷
+ˏˋ°•*⁀➷ 
+![imsooobloody](https://64.media.tumblr.com/425d313ed60c7ea57030245b0b78db26/0267cbb62ed7e3e6-8a/s75x75_c1/2cd6faf9b449dfecb43ba6c08d826aa14dbb04f5.gifv)
 
 # ➜ ' ' LOST SILVER. ' 'ㅤ
 
