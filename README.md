@@ -41,14 +41,14 @@
 
 ## main kins,, doubles iwec 
   
-| kin name  | source |
-| ------------- | ------------- |
-| 🪦/💛 gold  | lost silver |
-| ❤️/🐉🪦 steven  | strangled red  |
-| ❤️/❄️🪦 red  | snow on mount silver  |
-| 💾/🩶 grey the bootleg trainer  | hypnos lullaby  |
-| 🐇/💜🎳 jax | the amazing digital circus |
-| 🎩/🩵❤️💛🧡 Doey the doughman | poppy playtime |
-| 💛/🐕🤖 N | murder drones |
-| 🪞🎤/💙 yourself | hit single real |
-| 🚬🪦/💚 garcello | atsuover/smoke em out struggle |
+| kin name  | source | pronouns/age |
+| ------------- | ------------- | ------------- |
+| 🪦/💛 gold  | lost silver | he/it 𓂃 11 |
+| ❤️/🐉🪦 steven  | strangled red  | he/they 𓂃 18
+| ❤️/❄️🪦 red  | snow on mount silver  | he/it 𓂃 20
+| 💾/🩶 grey the bootleg trainer  | hypnos lullaby  | they/it 𓂃 17
+| 🐇/💜🎳 jax | the amazing digital circus | she/all 𓂃 22
+| 🎩/🩵❤️💛🧡 Doey the doughman | poppy playtime | he/they 𓂃 7 (jack) 10 𓂃 (kevin) 𓂃 (matthew)
+| 💛/🐕🤖 N | murder drones | it/he 𓂃 none
+| 🪞🎤/💙 yourself | hit single real | he/him 𓂃 19
+| 🚬🪦/💚 garcello | atsuover/smoke em out struggle | he/him 𓂃 25
