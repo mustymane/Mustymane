@@ -39,7 +39,7 @@
  <p align="center">
  ──── ୨୧ ────
 
-## main kins :3 
+## main kins,, doubles iwec 
   
 | kin name  | source |
 | ------------- | ------------- |
@@ -47,4 +47,6 @@
 | ❤️/🐉🪦 steven  | strangled red  |
 | ❤️/❄️🪦 red  | snow on mount silver  |
 | 💾/🩶 grey the bootleg trainer  | hypnos lullaby  |
-| 💛/🌀🐾 hypno (IM NOT A PEDOPHILE.) | pokemon  |
+| 🐇/💜🎳 jax | the amazing digital circus |
+| 🎩/🩵❤️💛🧡 Doey the doughman | poppy playtime |
+| 💛/🐕🤖 N | murder drones |
