@@ -55,3 +55,4 @@
 | 💙/🎱🎤 2-D | Gorillaz | heノthey 𓂃 48
 | 🧡/🍎🔫 pico | picos school | heノhim 𓂃 13
 | ❤️/🍎 kris | deltarune | theyノthem 𓂃 15
+| 🩵/🌭🦴 sans | undertale | theyノhe 𓂃 18+
