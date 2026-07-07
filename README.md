@@ -1,7 +1,9 @@
 ˏˋ°•*⁀➷ 
 ![imsooobloody](https://64.media.tumblr.com/425d313ed60c7ea57030245b0b78db26/0267cbb62ed7e3e6-8a/s75x75_c1/2cd6faf9b449dfecb43ba6c08d826aa14dbb04f5.gifv)
+**With _Unowns_ as his puppeteer, his groans are pitiful sparks of hope that Gold is possibly still alive.**
+![imsooobloody](https://64.media.tumblr.com/b09429c127865f2d2b3f07acdbbc1a70/0f1dd797b5574c42-6a/s75x75_c1/7620063e24e7f8dd354795e23f5522f322fa526e.gifv)
 
-# ➜ ' ' LOST SILVER. ' 'ㅤ
+# ➜ ' ' LOST SILVER. ' ' ![imsooobloody](https://static.wikia.nocookie.net/fridaynightfunking/images/0/0e/Pokemonsilver.png/revision/latest?cb=20221023184436)
 
 <p align="center">
   
@@ -16,9 +18,11 @@
 
   <p align="center">
     $${\color{#D70202}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
+<p align="center">
     
   $${\color{#F78F38}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
- <p align="center"> ⠀ 
+ <p align="center"> ⠀
+   
   $${\color{#08628B} ' ' I \space \color{#D70202}AM \space \color{#08628B}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage 𖹭](https://coldgold.straw.page/) [atabook 𖹭](https://mustymane.atabook.org)
