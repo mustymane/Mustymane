@@ -45,3 +45,4 @@
 | ------------- | ------------- |
 | 🪦/💛 gold  | lost silver |
 | ❤️/🐉🪦 steven  | strangled red  |
+| ❤️/❄️🪦 red  | snow on mount silver  |
