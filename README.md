@@ -22,6 +22,7 @@
 <p align="center">
     
   $${\color{#F78F38}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
+  
  <p align="center"> ⠀
    
   $${\color{#08628B} ' ' I \space \color{#D70202}AM \space \color{#08628B}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
@@ -38,21 +39,3 @@
 </p>
  <p align="center">
  ──── ୨୧ ────
-
-## main kins,, doubles iwec 
-  
-| ( ˶°ㅁ°) !! kin name  | source | pronouns + age |
-| ------------- | ------------- | ------------- |
-| 🪦/💛 gold  | lost silver | heノit 𓂃 11 |
-| ❤️/🐉🪦 steven  | strangled red  | heノthey 𓂃 18
-| ❤️/❄️🪦 red  | snow on mount silver  | heノit 𓂃 20
-| 💾/🩶 grey the bootleg trainer  | hypnos lullaby  | theyノit 𓂃 17
-| 🐇/💜🎳 jax | the amazing digital circus | she/all 𓂃 22
-| 🎩/🩵❤️💛🧡 Doey the doughman | poppy playtime | heノthey 𓂃 7 (jack) 10 𓂃 (kevin) 𓂃 (matthew)
-| 💛/🐕🤖 N | murder drones | itノhe 𓂃 none
-| 🪞🎤/💙 yourself | hit single real | heノhim 𓂃 19
-| 🚬🪦/💚 garcello | atsuoverノsmoke em out struggle | heノhim 𓂃 25
-| 💙/🎱🎤 2-D | Gorillaz | heノthey 𓂃 48
-| 🧡/🍎🔫 pico | picos school | heノhim 𓂃 13
-| ❤️/🍎 kris | deltarune | theyノthem 𓂃 15
-| 🩵/🌭🦴 sans | undertale | theyノhe 𓂃 18+
