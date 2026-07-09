@@ -42,4 +42,4 @@
  <p align="center">
  <img width="150" height="100" alt="baby sackboy" src="https://github.com/user-attachments/assets/9f20e2d3-0074-4f9d-b3c6-012d22713a09" />
 
-im also grey, dead red and steven ok
+im also grey, dead red, canon ethan and steven ok
