@@ -28,6 +28,11 @@
   $${\color{#08628B} ' ' I \space \color{#D70202}AM \space \color{#08628B}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage 𖹭](https://coldgold.straw.page/) [atabook 𖹭](https://mustymane.atabook.org)
+
+---
+**IMPORTANT: I AM NOT IN A GOOD MENTAL STATE. i am genuinely going insane.**
+
+*this is NOT joke "lol im mentally ill im soo crazy" im SO FOR REAL. PLEASE BE CAUTIOUS.*
     
    ![typhlosion](https://64.media.tumblr.com/1ad0505f646e76afcff97da61b1cc00d/ace99ee369f4f3e5-06/s2048x3072/7d5cc7fa56a435efaf1dee7c5cde1f7a513363da.gifv)
 
