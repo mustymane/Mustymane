@@ -32,7 +32,7 @@
 ---
 **IMPORTANT: I AM NOT IN A GOOD MENTAL STATE. i am genuinely going insane.**
 
-*this is NOT joke "lol im mentally ill im soo crazy" im SO FOR REAL. PLEASE BE CAUTIOUS.*
+*this is NOT a joke "lol im mentally ill im soo crazy" im SO FOR REAL. PLEASE BE CAUTIOUS.*
 
 ***im trying to get better, but for now please be extra soft on me.***
     
