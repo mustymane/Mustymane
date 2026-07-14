@@ -21,7 +21,7 @@
     $${\color{#D70202}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
 <p align="center">
     
-  $${\color{#F78F38}⸝⸝ ⠀ ꩜⠀ ⌞gold/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
+  $${\color{#F78F38}⸝⸝ ⠀ ꩜⠀ ⌞gold/ethan/stuart ノノ fictionkin, autistic ノ adhd⌝}$$
   
  <p align="center"> ⠀
    
