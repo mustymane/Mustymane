@@ -27,7 +27,7 @@
    
   $${\color{#08628B} ' ' I \space \color{#D70202}AM \space \color{#08628B}DEAD!' '⠀ ⠀ ⠀₍ᐢ. .ᐢ₎ ⠀ ⠀⸝⸝⸝}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage 𖹭](https://coldgold.straw.page/) [atabook 𖹭](https://mustymane.atabook.org)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage 𖹭](https://coldgold.straw.page/) [atabook 𖹭](https://mustymane.atabook.org) [full kinlist𖹭](https://pronouns.cc/@mustymane)
 
     
    ![typhlosion](https://64.media.tumblr.com/1ad0505f646e76afcff97da61b1cc00d/ace99ee369f4f3e5-06/s2048x3072/7d5cc7fa56a435efaf1dee7c5cde1f7a513363da.gifv)
