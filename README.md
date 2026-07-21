@@ -13,7 +13,7 @@ $${\color{#151B23}' ' [he \space Who \space Was \space Ripped \space Limb \space
 ## ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤLost silver ᯓ ꩜
 
 <p align="center">
- 
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage 𖹭](https://coldgold.straw.page/) [atabook 𖹭](https://mustymane.atabook.org) [full kinlist 𖹭](https://pronouns.cc/@mustymane)
 
 <p align="center">
