@@ -42,4 +42,6 @@ $${\color{#112544} ' ' I \space \color{#571C5E}AM \space \color{#112544}DEAD!' '
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
   
 $${\color{#F78F38} I \space am \space autistic \space and \space have \space a \space hard \space time \space starting \space convos, \space but \space i \space do \space really \space like \space talking! }$$
+
+$${\color{#D45633} I \space am \space TAKEN!! \space so \space please \space do \space not \space flirt space with \space me \space okay? ok. }$$
   
