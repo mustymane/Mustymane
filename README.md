@@ -38,7 +38,7 @@ $${\color{#112544} ' ' I \space \color{#571C5E}AM \space \color{#112544}DEAD!' '
 
 ![typhlosion](https://64.media.tumblr.com/d5a6b0359cda290590e8748bfeb537cd/ace99ee369f4f3e5-29/s2048x3072/7e012ff3b974818378746934e7b36fd6a2716fa0.pnj)
 
-<details align="center"><summary>  other info </summary>
+<details align="center"><summary>  ☆ other info 💤 </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
   
 $${\color{#F78F38} I \space am \space autistic \space and \space have \space a \space hard \space time \space starting \space convos, \space but \space i \space do \space really \space like \space talking! }$$
