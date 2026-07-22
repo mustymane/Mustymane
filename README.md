@@ -1,4 +1,4 @@
-ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mustymane&color=4D646C&label=UNOWNS) ㅤㅤㅤㅤ
+ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mustymane&color=4D646C&label=UNOWNS) ㅤㅤㅤㅤ
 <p align="center">
 <img width="500" height="50" alt="image" src="https://github.com/user-attachments/assets/147512a4-0ebd-4137-a005-7e27f36b87ce" />
   
@@ -10,11 +10,11 @@
 $${\color{#151B23}' ' [he \space Who \space Was \space Ripped \space Limb \space from \space Limb. ] ' '}$$
 
 
-## ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤLost silver ᯓ ꩜
+# ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤLost silver ᯓ ꩜
 
 <p align="center">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage 𖹭](https://coldgold.straw.page/) [atabook 𖹭](https://mustymane.atabook.org) [full kinlist 𖹭](https://pronouns.cc/@mustymane)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage 𖹭](https://coldgold.straw.page/) [atabook 𖹭](https://mustymane.atabook.org) [full kinlist 𖹭](https://pronouns.cc/@mustymane)
 
 <p align="center">
  𐂯
