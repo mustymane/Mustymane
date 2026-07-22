@@ -43,5 +43,5 @@ $${\color{#112544} ' ' I \space \color{#571C5E}AM \space \color{#112544}DEAD!' '
   
 $${\color{#F78F38} I \space am \space autistic \space and \space have \space a \space hard \space time \space starting \space convos, \space but \space i \space do \space really \space like \space talking! }$$
 
-$${\color{#D45633} I \space am \space TAKEN!! \space so \space please \space do \space not \space flirt space with \space me \space okay? ok. }$$
+$${\color{#D45633} I \space am \space TAKEN!! \space so \space please \space do \space not \space flirt \space with \space me \space okay? ok. }$$
   
