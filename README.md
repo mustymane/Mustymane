@@ -10,7 +10,7 @@
 $${\color{#151B23}' ' [he \space Who \space Was \space Ripped \space Limb \space from \space Limb. ] ' '}$$
 
 
-# ⤿ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤLost silver ᯓ ꩜
+# ⤿ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤLost silver ᯓ ꩜
 
 <p align="center">
 
