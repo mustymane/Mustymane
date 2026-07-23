@@ -3,7 +3,7 @@
 <img width="500" height="50" alt="image" src="https://github.com/user-attachments/assets/147512a4-0ebd-4137-a005-7e27f36b87ce" />
   
 <p align="center">
-
+" i'm not finna get the hub for you.." - silver haskell
  
   $${\color{#253B42}──── ୨୧ ────}$$
 
@@ -26,6 +26,8 @@ $${\color{#151B23}' ' [he \space Who \space Was \space Ripped \space Limb \space
  
 ![typhlosion](https://64.media.tumblr.com/d462fe70fd9ce8a3e331cdd8bad73ba1/ace99ee369f4f3e5-68/s2048x3072/da61253b1bceca3a025efa8454bf33fc06593cef.gifv
 )
+
+<p align="center">
 
 <p align="center">
 <img width="341" height="127" alt="Untitled22_20260721003510" src="https://github.com/user-attachments/assets/d94f4363-62b2-40d7-a111-c01dff242137" />
