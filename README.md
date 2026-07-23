@@ -71,4 +71,7 @@ $${\color{#F78F38} Jax }$$
 
 $${\color{#D45633} canon \space gold }$$
 
+<img width="170" height="314" alt="image" src="https://github.com/user-attachments/assets/2d77c723-621c-484c-8bb5-57809d501854" />
+
+
 $${\color{#F78F38} steven \space stoughton }$$
