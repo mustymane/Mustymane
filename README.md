@@ -56,8 +56,13 @@ $${\color{#D45633} I \space luvvv \space cakebattrr \space icecream }$$
 
 <details align="center"><summary>  ☆ main kins 🌀 </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
+⠀ ⠀ ⠀ ⠀ ⠀
+</p>
+  
+<img width="153" height="290" alt="image" src="https://github.com/user-attachments/assets/c41eb5fc-83fb-4903-a236-828fb42c9d69" /> 
+<img width="250" height="290" alt="image" src="https://github.com/user-attachments/assets/98a9f208-dee9-4b07-b350-47e8938e2705" />
+<img width="200" height="290" alt="image" src="https://github.com/user-attachments/assets/5be479d5-b2aa-4753-a663-c20c388b7c4e" /> <img width="150" height="290" alt="image" src="https://github.com/user-attachments/assets/2d77c723-621c-484c-8bb5-57809d501854" />  <img width="153" height="350" alt="image" src="https://github.com/user-attachments/assets/b7d6a7a6-29d4-4dc6-b7e7-5bf1c4ce7d01" />
+<img width="160" height="350" alt="image" src="https://github.com/user-attachments/assets/b69524a7-6b9d-477f-86a9-f7f414c3fc02" />
+<img width="160" height="350" alt="image" src="https://github.com/user-attachments/assets/18780141-53a7-4b89-81ee-bac8ad41f5d1" />
 
-<img width="150" height="290" alt="image" src="https://github.com/user-attachments/assets/c41eb5fc-83fb-4903-a236-828fb42c9d69" /> 
-<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/98a9f208-dee9-4b07-b350-47e8938e2705" />
-<img width="150" height="290" alt="image" src="https://github.com/user-attachments/assets/5be479d5-b2aa-4753-a663-c20c388b7c4e" /> <img width="150" height="290" alt="image" src="https://github.com/user-attachments/assets/2d77c723-621c-484c-8bb5-57809d501854" />  <img width="153" height="297" alt="image" src="https://github.com/user-attachments/assets/b7d6a7a6-29d4-4dc6-b7e7-5bf1c4ce7d01" />
 
