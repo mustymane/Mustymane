@@ -77,3 +77,6 @@ $${\color{#D45633} canon \space gold }$$
 
 
 $${\color{#F78F38} steven \space stoughton }$$
+
+<img width="153" height="297" alt="image" src="https://github.com/user-attachments/assets/b7d6a7a6-29d4-4dc6-b7e7-5bf1c4ce7d01" />
+
