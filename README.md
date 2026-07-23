@@ -3,7 +3,7 @@
 <img width="500" height="50" alt="image" src="https://github.com/user-attachments/assets/147512a4-0ebd-4137-a005-7e27f36b87ce" />
   
 <p align="center">
-" i'm not finna get the hub for you.." - silver haskell
+" i'm not finna get(git) the hub for you.." - silver haskell
  
   $${\color{#253B42}──── ୨୧ ────}$$
 
