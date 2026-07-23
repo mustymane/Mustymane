@@ -32,7 +32,7 @@ $${\color{#151B23}' ' [he \space Who \space Was \space Ripped \space Limb \space
 <p align="center">
 <img width="341" height="127" alt="Untitled22_20260721003510" src="https://github.com/user-attachments/assets/d94f4363-62b2-40d7-a111-c01dff242137" />
  
-$${\color{#520D1A} ✦' ' With \space \color{#571C5E} Unowns \color{#520D1A}\space as \space his \space puppeteer, his \space groans \space are  \space pitiful\space sparks \space of  \space hope \space that \space \color{#571C5A}Gold \color{#520D1A}\space  is \space  possibly \space still  \space alive.' '}$$
+$${\color{#520D1A} ✦' ' With \space \color{#571C5E} Unowns \color{#520D1A}\space as \space his \space puppeteer, his \space groans \space are \space pitiful\space sparks \space of  \space hope \space that \space \color{#571C5A}Gold \color{#520D1A}\space  is \space possibly \space still \space alive.' '}$$
  
 $${\color{#3A637A}⸝⸝꩜⠀ ⌞gold/ethan ノノ fictionkin, autistic ノ adhd ノ schizo⌝}$$
 
