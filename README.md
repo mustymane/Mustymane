@@ -66,6 +66,9 @@ $${\color{#D45633} Doey \space the \space doughman }$$
 
 $${\color{#F78F38} Jax }$$
 
+<img width="150" height="240" alt="image" src="https://github.com/user-attachments/assets/5be479d5-b2aa-4753-a663-c20c388b7c4e" />
+
+
 $${\color{#D45633} canon \space gold }$$
 
 $${\color{#F78F38} steven \space stoughton }$$
