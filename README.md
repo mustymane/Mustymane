@@ -57,7 +57,12 @@ $${\color{#D45633} I \space luvvv \space cakebattrr \space icecream }$$
 
 $${\color{#F78F38} lost \space silver \space (duh) }$$
 
+<img width="136" height="244" alt="image" src="https://github.com/user-attachments/assets/c41eb5fc-83fb-4903-a236-828fb42c9d69" />
+
 $${\color{#D45633} Doey \space the \space doughman }$$
+
+<img width="250" height="244" alt="image" src="https://github.com/user-attachments/assets/98a9f208-dee9-4b07-b350-47e8938e2705" />
+
 
 $${\color{#F78F38} Jax }$$
 
