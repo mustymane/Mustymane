@@ -58,3 +58,5 @@ $${\color{#F78F38} lost \space silver \space (duh) }$$
 $${\color{#D45633} Doey \space the \space doughman }$$
 
 $${\color{#F78F38} Jax }$$
+
+$${\color{#D45633} canon \space gold }$$
