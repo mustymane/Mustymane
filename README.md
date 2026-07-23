@@ -48,7 +48,7 @@ $${\color{#D45633} I \space am \space TAKEN!! \space so \space please \space do 
   
 $${\color{#F78F38} Im \space a \space Sagittarius \space with \space the \ ENFP-T \  personality \space type!! }$$
 
-$${\color{#F78F38} I \space louvvvvv \space cake \space batter \space ice \space cream \space and \space gummy \space bears  }$$
+$${\color{#D45633} I \space luvvv \space cakebattrr \space icecream }$$
 
 </p>
 
