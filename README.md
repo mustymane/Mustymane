@@ -1,6 +1,7 @@
 ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mustymane&color=4D646C&label=UNOWNS) ㅤㅤㅤㅤ
 <p align="center">
-<img width="500" height="50" alt="image" src="https://github.com/user-attachments/assets/147512a4-0ebd-4137-a005-7e27f36b87ce" />
+<img width="300" height="50" alt="image" src="https://github.com/user-attachments/assets/9bae072d-13b3-48fe-acc8-2fa6213b4045" />
+
   
 <p align="center">
 " i'm not finna get(git) the hub for you.." - silver haskell
