@@ -14,7 +14,7 @@ $${\color{#151B23}' ' [he \space Who \space Was \space Ripped \space Limb \space
 
 <p align="center">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage 𖹭](https://coldgold.straw.page/) [atabook 𖹭](https://mustymane.atabook.org) [full kinlist 𖹭](https://pronouns.cc/@mustymane)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage 𖹭](https://coldgold.straw.page/) [atabook 𖹭](https://mustymane.atabook.org) [full kinlist 𖹭](https://pronouns.cc/@mustymane)[graphic collection 𖹭](https://github.com/Quilflame/graphics)
 
 <p align="center">
  𐂯
