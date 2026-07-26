@@ -65,7 +65,9 @@ $${\color{#F78F38} basic \space Dni \space (pedos, \space zoos, \space ect)}$$
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
 ⠀ ⠀ ⠀ ⠀ ⠀
 </p>
-  
+
+![steven aka me ok](https://media.discordapp.net/attachments/1496580715339321345/1530756436618121376/fk17q02.png?ex=6a66bb86&is=6a656a06&hm=98e986b36b44b53c9270f08528dbaf640a77fc591e3bf9e96eaec1137997c52a&animated=true) ![lost silver](https://cdn.discordapp.com/attachments/1496580715339321345/1530756964345315511/06j56t0.png?ex=6a66bc04&is=6a656a84&hm=43f847b2f2772e9f6d0984340195dea07ea8cc33ac8b8325ba2a177e3bf38158&animated=true) ![goldgold](https://cdn.discordapp.com/attachments/1496580715339321345/1530757366302245015/dqdbd1n.png?ex=6a66bc64&is=6a656ae4&hm=f9582d23d0b5cf06f8731c27cca1c2c5e06427691644d88019383f33839ff554&animated=true)
+
 <img width="153" height="290" alt="image" src="https://github.com/user-attachments/assets/c41eb5fc-83fb-4903-a236-828fb42c9d69" /> 
 <img width="250" height="290" alt="image" src="https://github.com/user-attachments/assets/98a9f208-dee9-4b07-b350-47e8938e2705" />
 <img width="200" height="290" alt="image" src="https://github.com/user-attachments/assets/5be479d5-b2aa-4753-a663-c20c388b7c4e" /> <img width="150" height="290" alt="image" src="https://github.com/user-attachments/assets/2d77c723-621c-484c-8bb5-57809d501854" />  <img width="153" height="350" alt="image" src="https://github.com/user-attachments/assets/b7d6a7a6-29d4-4dc6-b7e7-5bf1c4ce7d01" />
