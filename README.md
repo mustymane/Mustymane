@@ -1,6 +1,6 @@
 ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mustymane&color=4D646C&label=UNOWNS) ㅤㅤㅤㅤ
 <p align="center">
-<img width="330" height="60" alt="image" src="https://github.com/user-attachments/assets/9bae072d-13b3-48fe-acc8-2fa6213b4045" />
+<img width="350" height="40" alt="image" src="https://github.com/user-attachments/assets/9bae072d-13b3-48fe-acc8-2fa6213b4045" />
 
   
 <p align="center">
