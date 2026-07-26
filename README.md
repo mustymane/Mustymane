@@ -56,6 +56,11 @@ $${\color{#D45633} I \space luvvv \space cakebattrr \space icecream }$$
 
 </p>
 
+<details align="center"><summary>  ☆ dni 💫 </summary>
+<p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
+
+$${\color{#F78F38} basic \space Dni \space (pedos, \space zoos, \space ect)}$$
+
 <details align="center"><summary>  ☆ main kins 🌀 </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
 ⠀ ⠀ ⠀ ⠀ ⠀
