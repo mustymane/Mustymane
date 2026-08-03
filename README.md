@@ -4,6 +4,11 @@
   
   $${\color{#08628B}⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝}$$
   <div align="center"> 
+<p align="center">
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31temy3o4wilbjtd25qemhfvx52y&redirect=true)
+  </a>
+</p>
     
 ![](https://komarev.com/ghpvc/?username=mustymane&color=045F89&label=Unown&color=045F89&style=for-the-badge) <div align="center"> <div align="center"> 
 
