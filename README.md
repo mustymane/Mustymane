@@ -56,6 +56,8 @@ $${\color{#F78F38} If \space "collect \space my \space unown" \space was \space 
 
 $${\color{#D45633} collect \space my \space unown \space is \space my \space orignal \space joke \space btw \space if \space anyone \space else \space uses \space it \space they \space are \space  larping \space as \space lost \space silver/hj \space but \space no \space  seriously \space  it \space is \space my \space joke \space yes \space im \space the \space og \space creator \space haha \space yes \space everyone \space im \space famous}$$ 
 
+$${\color{#F78F38} im \space very \space sensitive \space when \space it \space comes \space to \space my \space main \space kins \space YES \space i \space get \space offended \space if \space ppl \space even \space have \space a \space layout \space of \space them}$$
+
 </p>
 
 <details align="center"><summary>  ☆ dni 💫 </summary>
