@@ -34,7 +34,7 @@ $${\color{#520D1A} ✦' ' With \space \color{#571C5E} Unowns \color{#520D1A}\spa
  
 $${\color{#2D4046}⸝⸝꩜⠀ ⌞gold/ethan ノノ fictionkin, autistic ノ adhd ノ schizo⌝}$$
 
-$${\color{#112544} ' ' I \space \color{#571C5E}AM \space \color{#112544}DEAD!' '⠀ ⠀ ⠀(,,x﹏x,,) ⠀ ⠀⸝⸝⸝}$$
+$${\color{#112544} ' '⠀ ⠀ ⠀(,,x﹏x,,) ⠀ ⠀⸝⸝⸝}$$
 
 
 ⠀⠀⠀⠀⠀
