@@ -67,8 +67,17 @@ $${\color{#F78F38} basic \space Dni \space (pedos, \space zoos, \space ect)}$$
 
 $${\color{#D45633} idk \space i \space don't \space really \space have \space a \space specific \space dni \space i \space just \space block }$$
 
-<details align="center"><summary>  ☆ where to contact me </summary>
+<details align="center"><summary>  ☆ where to contact me if u wanna bmf </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
+
+<div id="badges">
+  <a href="https://discord.com/users/1381397078789324884">
+    <img src="https://img.shields.io/badge/discord-purple?style=for-the-badge&logo=discord&logoColor=white" alt="discord Badge"/>
+  </a>
+  <a href="https://coldgold.straw.page">
+    <img src="https://img.shields.io/badge/strawpage gimmicks-red?style=for-the-badge&logo=&logoColor=white" alt="strawpage Badge"/>
+  </a>
+</div>
 
 
 <details align="center"><summary>  ☆ main kins 🌀 </summary>
