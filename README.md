@@ -76,7 +76,7 @@ pokepasta/hypnos lullaby:
 
 spooky month:
 
-![roy](https://64.media.tumblr.com/36eaec8e6edb6f1c562ee75ae7fef75c/8f2199035b7362c0-46/s250x400/dbfbfb53717c95c8dea149bcad9fdd6146f163fb.gifv)
+![roy](https://64.media.tumblr.com/36eaec8e6edb6f1c562ee75ae7fef75c/8f2199035b7362c0-46/s250x400/dbfbfb53717c95c8dea149bcad9fdd6146f163fb.gifv) ![radford](https://64.media.tumblr.com/33bd34bc17fe25cd4fcc9c5237fdafdb/a2588a93e0ba1aeb-2c/s250x400/6815803fa066c61a742050989c44d407f639894f.gifv)
 
 <details align="center"><summary>  ☆ where to contact me if u wanna bmf </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
