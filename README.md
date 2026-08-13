@@ -68,8 +68,7 @@ $${\color{#3F0C20} idk \space i \space don't \space really \space have \space a 
 <details align="center"><summary>  ☆ main kins  </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
 
-![](https://64.media.tumblr.com/b4e06ceaacca05689269d543fb1ddcb4/155db67939b3bad6-ef/s250x400/bed04c7ee756a5d173cf06b82951e8f3fc0f179e.gifv)
-
+![](https://64.media.tumblr.com/b4e06ceaacca05689269d543fb1ddcb4/155db67939b3bad6-ef/s250x400/bed04c7ee756a5d173cf06b82951e8f3fc0f179e.gifv) ![](https://64.media.tumblr.com/36eaec8e6edb6f1c562ee75ae7fef75c/5c3cdcced31d793c-d8/s250x400/22902715fcbf0eb8d87e03efcdc50f27a2b9a5e1.gifv)
 </p>
 
 <details align="center"><summary>  ☆ where to contact me if u wanna bmf </summary>
