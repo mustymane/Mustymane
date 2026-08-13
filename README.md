@@ -58,9 +58,11 @@ $${\color{#69111E} im \space very \space sensitive \space when \space it \space 
 <details align="center"><summary>  ☆ dni  </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
 
-$${\color{#3F0C20} basic \space Dni \space (pedos, \space zoos, \space ect)}$$
+$${\color{#76737A} basic \space Dni \space (pedos, \space zoos, \space ect)}$$
 
-$${\color{#3F0C20} idk \space i \space don't \space really \space have \space a \space specific \space dni \space i \space just \space block }$$
+$${\color{#76737A} mental \space abusers \space known \space as \space "keiththeklutz" \space fuck you😂}$$
+
+$${\color{#76737A} idk \space i \space don't \space really \space have \space a \space specific \space dni \space i \space just \space block }$$
 
 </p>
 
