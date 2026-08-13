@@ -62,6 +62,8 @@ $${\color{#3F0C20} basic \space Dni \space (pedos, \space zoos, \space ect)}$$
 
 $${\color{#3F0C20} idk \space i \space don't \space really \space have \space a \space specific \space dni \space i \space just \space block }$$
 
+</p>
+
 <details align="center"><summary>  ☆ where to contact me if u wanna bmf </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
 
@@ -72,3 +74,8 @@ $${\color{#3F0C20} idk \space i \space don't \space really \space have \space a 
   
   <a href="https://coldgold.straw.page">
     <img src="https://img.shields.io/badge/strawpage gimmicks-red?style=for-the-badge&logo=&logoColor=white" alt="strawpage Badge"/>
+
+<details align="center"><summary>  ☆ main kins  </summary>
+<p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
+
+![](https://64.media.tumblr.com/5f134e4c8613e5502bc26298495c3948/640fe75096afddff-a4/s250x400/e07ef7ca105172f74ae6c3d38f7155e53b581bfa.gifv)
