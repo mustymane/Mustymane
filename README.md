@@ -70,7 +70,12 @@ $${\color{#76737A} idk \space i \space don't \space really \space have \space a 
 <details align="center"><summary>  ☆ main kins  </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
 
+pokepasta/hypnos lullaby:
+
 ![](https://64.media.tumblr.com/b4e06ceaacca05689269d543fb1ddcb4/155db67939b3bad6-ef/s250x400/bed04c7ee756a5d173cf06b82951e8f3fc0f179e.gifv) ![](https://64.media.tumblr.com/5522cdb588631a97f614e7c0d1eb4624/1983b9ff7f066f3f-3c/s250x400/0d94c2bf7f8a07aa78d22a9800feeab6f8d6e335.gifv) ![](https://64.media.tumblr.com/8fc972635008172d21795083448e9c53/20b9a3ddf6c0d628-cb/s250x400/ad71891c35f3187713403caeeeb6c78be76fddd1.gifv)
+
+spooky month:
+
 
 <details align="center"><summary>  ☆ where to contact me if u wanna bmf </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
