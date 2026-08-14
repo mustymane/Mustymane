@@ -79,7 +79,8 @@ spooky month:
 ![roy](https://64.media.tumblr.com/36eaec8e6edb6f1c562ee75ae7fef75c/8f2199035b7362c0-46/s250x400/dbfbfb53717c95c8dea149bcad9fdd6146f163fb.gifv) ![radford](https://64.media.tumblr.com/33bd34bc17fe25cd4fcc9c5237fdafdb/a2588a93e0ba1aeb-2c/s250x400/6815803fa066c61a742050989c44d407f639894f.gifv) ![pump](https://64.media.tumblr.com/a6e221be201b03815e0f5fa9ed9a9d85/497169f147ceb6ef-a5/s250x400/a722f7f51be798a184b7d797b167f22744c534a5.gifv)
 
 fnf:
-wip
+
+![sillybilly](https://64.media.tumblr.com/7235fd8c16326c9e1ce7f1cd3540f042/320f68a4f25f821a-b3/s250x400/d316e9d74a10d19a5247e829d7e9c3e40a041792.gifv)
 
 tadc:
 wip
