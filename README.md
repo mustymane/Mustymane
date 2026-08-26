@@ -67,42 +67,4 @@ $${\color{#76737A} idk \space i \space don't \space really \space have \space a 
 </p>
 
 
-<details align="center"><summary>  ☆ main kins  </summary>
-<p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
-
-pokepasta/hypnos lullaby:
-
-![lost silver](https://64.media.tumblr.com/b4e06ceaacca05689269d543fb1ddcb4/155db67939b3bad6-ef/s250x400/bed04c7ee756a5d173cf06b82951e8f3fc0f179e.gifv) ![steven](https://64.media.tumblr.com/5522cdb588631a97f614e7c0d1eb4624/1983b9ff7f066f3f-3c/s250x400/0d94c2bf7f8a07aa78d22a9800feeab6f8d6e335.gifv) ![grey](https://64.media.tumblr.com/8fc972635008172d21795083448e9c53/20b9a3ddf6c0d628-cb/s250x400/ad71891c35f3187713403caeeeb6c78be76fddd1.gifv)
-
-spooky month:
-
-![roy](https://64.media.tumblr.com/36eaec8e6edb6f1c562ee75ae7fef75c/8f2199035b7362c0-46/s250x400/dbfbfb53717c95c8dea149bcad9fdd6146f163fb.gifv) ![radford](https://64.media.tumblr.com/33bd34bc17fe25cd4fcc9c5237fdafdb/a2588a93e0ba1aeb-2c/s250x400/6815803fa066c61a742050989c44d407f639894f.gifv) ![pump](https://64.media.tumblr.com/a6e221be201b03815e0f5fa9ed9a9d85/497169f147ceb6ef-a5/s250x400/a722f7f51be798a184b7d797b167f22744c534a5.gifv)
-
-fnf:
-
-![sillybilly](https://64.media.tumblr.com/7235fd8c16326c9e1ce7f1cd3540f042/320f68a4f25f821a-b3/s250x400/d316e9d74a10d19a5247e829d7e9c3e40a041792.gifv)
-
-tadc:
-wip
-
-gorillaz:
-wip
-
-pokespe:
-wip
-
-poppy playtime:
-wip
-
-<details align="center"><summary>  ☆ where to contact me if u wanna bmf </summary>
-<p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
-
-
-<div id="badges">
-  <a href="https://discord.com/users/1381397078789324884">
-    <img src="https://img.shields.io/badge/discord-purple?style=for-the-badge&logo=discord&logoColor=white" alt="discord Badge"/>
-  
-  <a href="https://coldgold.straw.page">
-    <img src="https://img.shields.io/badge/strawpage gimmicks-red?style=for-the-badge&logo=&logoColor=white" alt="strawpage Badge"/>
-
 
