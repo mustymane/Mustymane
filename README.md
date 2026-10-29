@@ -60,7 +60,6 @@ $${\color{#69111E} im \space very \space sensitive \space when \space it \space 
 
 $${\color{#76737A} basic \space Dni \space (pedos, \space zoos, \space ect)}$$
 
-$${\color{#76737A} mental \space abusers \space known \space as \space "keiththeklutz" \space fuck you😂}$$
 
 $${\color{#76737A} idk \space i \space don't \space really \space have \space a \space specific \space dni \space i \space just \space block }$$
 
